@@ -54,8 +54,9 @@ help - To get help how to use bot
 
 ### 💕 CONTACT DEVELOPER
 
-- [Raj Verma](https://telegram.me/Your_rjv)
+🧑‍💻 [Raj Verma ⚡](https://telegram.me/Your_rjv)
 
+🧑‍💻 [ՏIᒪᗴᑎT ᘜᕼOՏT ⚡️](https://t.me/THE_DS_OFFICIAL)
 
 ### 📌 NOTE
 
